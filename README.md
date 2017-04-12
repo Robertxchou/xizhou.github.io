@@ -1,2 +1,2 @@
-# xizhou.github.io
-my story
+# Xi Zhou.github.io
+Xi Zhou's Page
